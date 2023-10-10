@@ -20,5 +20,5 @@ sempre resolvendo problemas (causados por mim mesmo)
 
 ![eden2](https://github.com/Matheus15CAP/Matheus15CAP/assets/133786715/4050b607-2656-4f9d-9bf3-7dcb2bfe4d73)
 
-<a href="" target="_blank"> <img src="https://img.shields.io/badge/Reddit-FF4500?style=for-the-badge&logo=reddit&logoColor=white" target="_blank">
+<a href="https://reddit.com/u/Efficient-Bicycle-14/s/ImxwDUOzN5" target="_blank"> <img src="https://img.shields.io/badge/Reddit-FF4500?style=for-the-badge&logo=reddit&logoColor=white" target="_blank">
 
