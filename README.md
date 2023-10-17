@@ -3,7 +3,7 @@
 
 maluco
 
-tboir player (eden >>>> azazel) (madelena >>>> sansão)
+tboir player (madelena >>>> sansão)
 
 infelizmente jogador de LOL (mono jinx😭)
 
@@ -11,6 +11,7 @@ já tiltei uma velha enquanto defendia a filha dela 😎
 
 sempre resolvendo problemas (causados por mim mesmo)
 
+"a vida é boa demais pra ser levada a sério"
 
 - ![alt](https://i.redd.it/odip95xx8hv71.jpg)
 
