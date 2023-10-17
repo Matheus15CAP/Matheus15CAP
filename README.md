@@ -11,7 +11,7 @@ já tiltei uma velha enquanto defendia a filha dela 😎
 
 sempre resolvendo problemas (causados por mim mesmo)
 
-"a vida é boa demais pra ser levada a sério"
+"a vida é muito importante para ser levada a sério" Oscar Wilde
 
 - ![alt](https://i.redd.it/odip95xx8hv71.jpg)
 
