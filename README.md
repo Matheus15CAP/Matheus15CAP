@@ -5,7 +5,7 @@ maluco
 
 tboir player (madelena >>>> sansão)
 
-infelizmente jogador de LOL (mono jinx😭)
+infelizmente jogador de LOL (mono Briar)
 
 já tiltei uma velha enquanto defendia a filha dela 😎 
 
