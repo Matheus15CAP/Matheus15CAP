@@ -5,9 +5,7 @@ maluco
 
 tboir player (madelena >>>> sansão)
 
-infelizmente jogador de LOL (mono Briar)
-
-já tiltei uma velha enquanto defendia a filha dela 😎 
+infelizmente jogador de LOL (main Neeko)
 
 sempre resolvendo problemas (causados por mim mesmo)
 
